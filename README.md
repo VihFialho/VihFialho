@@ -1,4 +1,4 @@
-## Olá sou a Vtória Fialho 😊
+## Olá sou a Vitória Fialho 😊
 
 - 👩🏻‍💻 Hoje trabalho estágiando com Análise de Suporte e infraestrutura administrativa
 - 🌱 Estudando Análise e Desenvolvimento de Sistemas
